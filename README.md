@@ -1,1 +1,1 @@
-idk on how this would work i just used chatgpt and im new to this
+thanks to this https://pastebin.com/pJvGUJ4S im now able to use this
